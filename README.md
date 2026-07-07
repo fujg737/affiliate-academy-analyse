@@ -1,0 +1,1 @@
+# affiliate-academy-analyse
